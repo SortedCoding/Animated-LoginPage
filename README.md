@@ -2,7 +2,7 @@
 
 # Tutorial is available on youtube channel
 
-click on the link to see  ([Open in Youtube](https://youtu.be/TaVklQmnPmo)), 
+click on the link to see  ([Open in Youtube](https://youtu.be/u5jAxwbfPLw)), 
 
 
 # Screenshot
